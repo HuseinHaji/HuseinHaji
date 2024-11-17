@@ -5,5 +5,5 @@
 🔍 Exploring Business Intelligence, Data Analytics, and Dashboard Design.  
 
 ## Let's Connect:
-- www.linkedin.com/in/huseynhajiyev10/
-- huseynhadjiyev@outlook.com
+- 🔗 www.linkedin.com/in/huseynhajiyev10/
+- 📥 huseynhadjiyev@outlook.com
